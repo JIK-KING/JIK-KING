@@ -1,1 +1,1 @@
-Jesus is KING, he is our Lord. Gofbless!!!
+Jesus is KING, he is our Lord. Godbless!!!
